@@ -1,1 +1,1 @@
-# ClimateChange-Capstone
+# Climate Change-Capstone
